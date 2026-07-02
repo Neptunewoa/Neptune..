@@ -2,6 +2,7 @@
 
 *this is a wip for now so ignore this...*
 ![Neptune Image](image.jpg)
+₊˚ ✧ ‿︵‿୨୧‿︵‿ ✧ ₊˚
 
-[intro!](https://neptunemeow.carrd.co/)
+[cardd](https://neptunemeow.carrd.co/).        [ATABOOK](https://neptunethewinner.atabook.org)
 
