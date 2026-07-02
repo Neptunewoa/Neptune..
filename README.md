@@ -4,5 +4,5 @@
 ![Neptune Image](image.jpg)
 ₊˚ ✧ ‿︵‿୨୧‿︵‿ ✧ ₊˚
 
-[cardd](https://neptunemeow.carrd.co/).        [ATABOOK](https://neptunethewinner.atabook.org)
+[cardd](https://neptunemeow.carrd.co/).        [atabook.](https://neptunethewinner.atabook.org)
 
