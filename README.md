@@ -1,7 +1,9 @@
 # Neptune..
 
 
-![Neptune Image](image.jpg)
+![Neptune Image]([image.jpg](https://kommodo.ai/i/5z3zhXpujg5bKCoSOnN2))
+
+
 ₊˚ ✧ ‿︵‿୨୧‿︵‿ ✧ ₊˚
 
 [cardd](https://neptunemeow.carrd.co/).        [atabook.](https://neptunethewinner.atabook.org)
