@@ -7,4 +7,4 @@
 [cardd](https://neptunemeow.carrd.co/) | [atabook](https://neptunethewinner.atabook.org)
 
 
-- __C + H ALWAYS ENCOURAGED IN PONY TOWN !!__
+:★. c + h always heavily encouraged 
