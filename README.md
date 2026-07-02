@@ -1,7 +1,6 @@
 # Neptune..
 
-
-![Neptune Image]([image.jpg](https://kommodo.ai/i/5z3zhXpujg5bKCoSOnN2))
+https://kommodo.ai/i/5z3zhXpujg5bKCoSOnN2
 
 
 ₊˚ ✧ ‿︵‿୨୧‿︵‿ ✧ ₊˚
