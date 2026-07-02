@@ -1,7 +1,7 @@
 # Neptune..
 
 
-![alt text]([(https://kommodo.ai/i/5z3zhXpujg5bKCoSOnN2]
+![alt text][(https://kommodo.ai/i/5z3zhXpujg5bKCoSOnN2]
 
 
 ₊˚ ✧ ‿︵‿୨୧‿︵‿ ✧ ₊˚
